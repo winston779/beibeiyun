@@ -1,6 +1,6 @@
 # 贝贝云机场官网地址
 
-最新地址：[beibeicloud.shop](https://beibeicloud.shop/register?code=aD4SX9zs)
+最新地址：[beibeicloud.shop](https://999.2beibei.com/register?code=aD4SX9zs)
 
 ## 贝贝云介绍
 
